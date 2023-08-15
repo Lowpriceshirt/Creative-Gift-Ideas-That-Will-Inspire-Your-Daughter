@@ -1,1 +1,1 @@
-# Creative-Gift-Ideas-That-Will-Inspire-Your-Daughter
+Creative Gift Ideas That Will Inspire Your Daughter - Gifts for daughter can be difficult. To help you out I have put together a list of creative gift ideas that will inspire you. My goal was to create a list of gifts that are not only impressive, but also supplies that she is likely to use over time after she unwraps them on Christmas or her birthday - https://lowpriceshirt.com/family-gifts/gift-for-daughter/
